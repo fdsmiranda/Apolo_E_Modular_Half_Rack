@@ -1,1 +1,1 @@
-# Slim2030 (Orange Version)
+# Apolo Elite Modular Half Rack
